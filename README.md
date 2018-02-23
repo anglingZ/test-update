@@ -3,10 +3,4 @@
 
 #semua ini berakir kau tlah berubah
 
-# semua ini berakir tapi apadaya memang begini adanya
-
-
-tidak bisa 
-ini tidak bisa 
-
-ini untuk yang ketiga
+# AKU YAKIN INI BISA
